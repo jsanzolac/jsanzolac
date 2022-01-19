@@ -2,7 +2,7 @@
 
 🤓 I love tech and how it opens a wide range of possibilities to solve business problems. That's what I feel passionate about.
 
-🏆I've participated in many tech competitions and challenges. Scroll to discover which ones.
+🏆I've participated in several tech competitions and challenges.
 
 😏 If you are interested, I know...
 
